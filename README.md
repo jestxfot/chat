@@ -1,3 +1,5 @@
+# Основной сайт: https://jestxfot.vercel.app
+
 ### Канал: https://t.me/jestx_fot/3
 
 ### Основной чат: https://t.me/jestxs
