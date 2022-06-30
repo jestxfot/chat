@@ -18,3 +18,5 @@ Nimininon (твинк @mersen1337) (стикеры и гиф)
 Я Маладес @ClemKinn
 <br>
 Макар Лоликов
+<br>
+WildFire @Toxic_FPS
