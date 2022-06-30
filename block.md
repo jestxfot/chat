@@ -22,3 +22,4 @@ Nimininon (твинк @mersen1337) (стикеры и гиф)
 WildFire @Toxic_FPS
 <br>
 яжемать @zxc_meowww
+@negrionok1
