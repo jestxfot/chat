@@ -8,9 +8,9 @@
 
 ### Личный Блог-Мысли: https://t.me/jestx_blog
 
-### 🎨 Беседа фан. работ: https://t.me/fan_work
+### 🖥 IT чат: https://t.me/it_komp
 
-### 👨‍🎓 Для подготовки к ОГЭ/ЕГЭ: https://t.me/school_ege
+### 🎨 Беседа фан. работ: https://t.me/fan_work
 
 ### 🚬 Игра-мафия: https://t.me/jestx_mafia
 
