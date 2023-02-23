@@ -6,8 +6,6 @@
 
 ### Личный Блог-Мысли: https://t.me/jestx_blog
 
-### 🖥 IT чат: https://t.me/it_komp
-
 ### 🎨 Беседа фан. работ: https://t.me/fan_work
 
 ### 🚬 Игра-мафия: https://t.me/jestx_mafia
